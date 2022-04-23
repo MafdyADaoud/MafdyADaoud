@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MafdyAzer.
+- 👋 Hi, I’m @MafdyAzer, Senior Full-stack Developer (.NET) at @BibleSocietyEg.
 - 👀 I’m interested in Music, reading and coding.
 - 🌱 I’m currently learning project management .
 - 💞️ I’m looking to collaborate on projects that serve humanity.
