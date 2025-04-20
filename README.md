@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MafdyADaoud, Team-Lead at @BibleSocietyEg, @euodooInternational & @PSolution-Hub.
-- 👀 I’m interested in Music, reading and coding.
+- 👀 I Love Music, reading and coding.
 - 📫 You can reach me at Linkedin: https://www.linkedin.com/in/mafdyadaoud/
 
 
